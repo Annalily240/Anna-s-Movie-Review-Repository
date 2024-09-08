@@ -1,7 +1,5 @@
-This is my review for the 1979 science fiction thriller, **Alien**. 
-The Ridley Scott film is exciting and thrilling but most certainly dated. 
-Although, it is most certainly a groundbreaking film that not only broke boundaries in the genre but also opened gates for many futures films. 
-The itudated special effects and prothetics definitely effect a younger viewer's opinion. 
-However, there are many highlights all viewers can enjoy.
-With a strong female lead in Ripley and a persistent foe. The flow of the movie is not only enjoyable, but well paced. 
-I rate this movie a 8/10.
+It Ends With Us is a phemoninal new 2024 film staring Blake Lively and Justin Balndoni.
+As a great film that that discusses diffcult topics such as sexual and physical abuse, it had few shortcomings.
+The costumes and actors both fit hte books well and the pacing was slow but steady.
+However, the outside drama and the news has taken away some of the special qualities of the movie. Such as the the unity such heavy topics deserve. 
+I rate this movie a 9/10.
